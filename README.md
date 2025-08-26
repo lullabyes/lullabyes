@@ -3,6 +3,6 @@
 
 <p align="center"> im TWEAKING trying to remake my sites ．．．
 
-　<p align="center"> ![Untitled277_20250707091552](https://github.com/user-attachments/assets/70d2a76c-5286-48be-8614-79a377f24c7e)
+　<p align="center"><img width="300" height="300" alt="Untitled336_20250824160843" src="https://github.com/user-attachments/assets/91542485-bd44-4884-90b4-b255eaa08792" />
 
 　<p align="center"> ( [4 my friends ^◡^](https://rentry.co/angelsappreciation) )
